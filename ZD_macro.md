@@ -25,11 +25,10 @@ If you have any further questions or concerns, feel free to reply to this email.
 
 
 
-All the best,
-Trisha
-CodePath Support
-www.codepath.org
-Tech Excellence For All
+All the best,  
+Trisha  
+CodePath Support  
+
 
 
 
